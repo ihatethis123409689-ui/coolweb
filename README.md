@@ -12,3 +12,5 @@ the galery
 <img width="2498" height="1057" alt="c00lkids Browser 6_10_2026 1_00_30 PM" src="https://github.com/user-attachments/assets/8db24e06-1d42-4c64-b1d2-039b5f00bcc8" />
 
 <img width="2498" height="1057" alt="c00lkids Browser 6_10_2026 1_00_24 PM" src="https://github.com/user-attachments/assets/162e7bc9-0abf-4d50-92d3-bc6a32843f5c" />
+
+THESE IMAGES AR OUTDATED NOW I WONT BE UPDATING THEM
